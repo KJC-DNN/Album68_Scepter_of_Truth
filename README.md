@@ -1,6 +1,6 @@
 # Album 68 - Scepter of Truth
 
-A high-energy, cinematic worship record that fuses orchestral choir, stadium rock, and prophetic anthemry to proclaim Christ’s reign over deception, greed, and hidden powers. Strong prophetic and combative imagery is used metaphorically to call for truth, healing, and justice; pastoral framing and congregation-friendly edits are provided.
+A high-energy, cinematic worship record that fuses orchestral choir, stadium rock, and prophetic anthemry to proclaim Christ’s reign over deception, greed, and hidden powers. Strong prophetic and combative imagery is used metaphorically to call for truth, healing, and justice.
 
 ## Tracks
 
